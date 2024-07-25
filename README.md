@@ -1,1 +1,1 @@
-Newwworld is the greatest programmer in the world
+Newwworld is the greatest programmer
